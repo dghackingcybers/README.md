@@ -1,4 +1,4 @@
-<img src= "https://cdn.discordapp.com/attachments/1032335294797725847/1101858648948478012/6f49d6555e2472b3f00e9e4e21e23f11.jpg">
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Experienced+in+hacking;;Cdm+tools;Cartel+de+Medellín)](https://git.io/typing-svg)
 
 
 **👑 __Hacking the System - Cybers Founder__ 👑**
